@@ -1,0 +1,1 @@
+Przygotowanie do kolokwium
